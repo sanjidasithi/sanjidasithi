@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Research Project**
 
-- 🤝 I’m looking for help with **Research**
+- 🤝 I’m looking for help with ****
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
